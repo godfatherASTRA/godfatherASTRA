@@ -1,0 +1,3 @@
+- 👋 Jou jou ma olen @godfatherASTRA
+- 👀 Ma arendan FiveM serverit
+- 📫 Discord on : godfather#6137
